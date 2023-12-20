@@ -11,11 +11,11 @@
 
 - 👨‍💻 All of my projects are available at [portolfilo link](portolfilo link)
 
-- 📝 I regularly write articles on [blog link](blog link)
+- 📝 I regularly write articles on [https://saistudyworld.blogspot.com/](blog link)
 
 - 📫 How to reach me **dsaikumarv29@gmail.com**
 
-- 📄 Know about my experiences [resume link](resume link)
+- 📄 Know about my experiences [resume link]
 
 - ⚡ Fun fact **Most of my free time i used to watch scifi movies**
 
