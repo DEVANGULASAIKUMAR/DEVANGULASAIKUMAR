@@ -11,7 +11,7 @@
 
 - 👨‍💻 All of my projects are available at [portolfilo link](portolfilo link)
 
-- 📝 I regularly write articles on [https://saistudyworld.blogspot.com/](blog link)
+- 📝 I regularly write articles on blog [https://saistudyworld.blogspot.com/] (blog link)
 
 - 📫 How to reach me **dsaikumarv29@gmail.com**
 
